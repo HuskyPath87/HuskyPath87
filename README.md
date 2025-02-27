@@ -38,7 +38,7 @@ I love creating **user-friendly applications**, exploring **web development**, a
 ## 📫 Get in Touch  
 🔗 **GitHub:** [github.com/HuskyPath87](https://github.com/HuskyPath87)  
 🔗 **LinkedIn:** [linkedin.com/in/jitka-spisarová-8ab751118](https://www.linkedin.com/in/jitka-spisarov%C3%A1-8ab751118/)  
-📧 **Email:** [Your Email]  
+📧 **Email:** [jitka.spisarova@gmail.com]  
 
 ---
 
